@@ -1,0 +1,2 @@
+# IPL-Betting-Tips
+IPL Betting Tips for helping you winning your bets and return you the extra amount with your wager. We at crickbatstips.com provide the actual and fixed IPL betting Tips after analyzing and researching various markets. We do a deep research on teams performances, players form, venue and weather conditions , Toss prediction, to provide you the exact betting tips and winne predictions.
